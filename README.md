@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-🌱 I'm a graduate student at Tulane
+🌱 I'm a graduate student
 
 🔭 I study tesserae on Venus
 
